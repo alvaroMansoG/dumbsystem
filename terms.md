@@ -1,0 +1,1 @@
+This application is for private personal use only. It is not offered as a public or commercial service.
